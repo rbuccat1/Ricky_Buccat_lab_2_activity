@@ -1,1 +1,0 @@
-# Ricky_Buccat_lab_2_activity
